@@ -1,1 +1,1 @@
-﻿# semana-2-joanjacome
+Joan Arturo Jácome Delgado
